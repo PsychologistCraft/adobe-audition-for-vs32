@@ -1,4 +1,4 @@
-# 
+# Enhance Adobe Audition for PC | Adobe Audition for Windows with instant Adobe Audition for PC | Adobe Audition for Windows Panel | EQ + macro-recording, the #1 panel. Includes EQ
 
 
 
